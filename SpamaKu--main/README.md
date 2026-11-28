@@ -1,0 +1,2 @@
+# SpamaKu-
+qwertyuiopasdfghjklzxcvbnm
